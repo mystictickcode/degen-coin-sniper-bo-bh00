@@ -1,4 +1,4 @@
-# 
+# best degen coin sniper bot | private-RPC-nodes + token-launch-monitoring offers the most advanced degen coin sniper bot, with private-RPC-nodes and token-launch-monitoring. Ideal
 
 
 
